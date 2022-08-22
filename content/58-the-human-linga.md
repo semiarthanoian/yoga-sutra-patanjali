@@ -4,7 +4,7 @@
 
 This living linga, at the layer called energy body, contains many points where the flows of energy meet in a triangle called "chakra". The number of these triangles are huge but they all function around 112 main chakras which are allocated balancely around the system. 4 of these cannot be altered and yoga masters commonly tell us to work with the 108 ones left. And the number is also reduced to 7 main chakras which are aligned across the spine.
 
-So when we are temporarily grounded in the body, there are 108 door ways to liberate beyond the physical plane and reach the Ultimate Truth which are simplified to 7 for convenience to work with the mind and the 3 main channels that we have talked about.
+So when we are temporarily grounded in the body, there are 108 door ways to liberate beyond the gross physical plane and reach the Ultimate Truth which are simplified to 7 for convenience to work with the mind and the 3 main channels that we have talked about.
 
 And so the 7 main chakras are:
 
@@ -16,4 +16,4 @@ And so the 7 main chakras are:
 - Hara chakra - which is located at the level lower than the above 2 inches.
 - Root chakra - which is located at the bottom of the spine.
 
-The three main channels we've talked about runs through these main chakras too. The focus breathing technique can help us to realign energy flows at these chakras and free all deceptive thoughts from within the two side channels. Besure to breath calmly, reaching the back, and focus the the point where it's needed to free the inner winds.
+The three main channels we've talked about runs through these main chakras too. The focus breathing technique can help us to realign energy flows at these chakras and free all deceptive thoughts from within the two side channels. Besure to breath calmly, reaching the back, focus on the points where it's needed to free the inner winds, and gradually performs compassionate thoughts.
