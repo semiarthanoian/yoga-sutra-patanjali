@@ -1,6 +1,6 @@
-# The Second Cornerstone: Reaching to Reach
+# The Second Cornerstone: The Chapter On The Way
 
-> Undertaking difficult spiritual practices, Regular studies, and Prayers to Transcended Beings, are ways of becoming whold.
+> Undertaking difficult spiritual practices, Regular studies, and Prayers to Transcended Beings, are ways of becoming whole.
 
 In the first chapter, we use deep meditation to travel through the five paths. In the second chapter, we start some very practical yoga methods to attain this meditation and the wisdom which rides it.
 
