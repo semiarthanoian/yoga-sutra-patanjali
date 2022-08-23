@@ -2,11 +2,26 @@
 
 > Calling upon their names is the first of all prayers. We must repeat this prayers and think well upon the meaning.
 
-- Amitabha Tathagata
-- Bhaisajyaguru Tathagata
-- Akasagarbha Bodhisattva
-- Ksitigarbha Bodhisattva
-- Mahakala Bodhisattva
+- Northern
+   - Sakyamuni Tathagata
+   - Manjushri Bodhisattva
+   - Samanthabhadra Bodhisattva
+- Western
+   - Amitabha Tathagata
+   - Avalokitesvara Bodhisattva
+   - Mahasthamaprapta Bodhisattva
+- Eastern
+   - Bhaisajyaguru Tathagata
+   - Suryaprabha Bodhisattva
+   - Candraprabha Bodhisattva
+- Southern
+   - Satnasambhava Tathagata
+   - Akasagarbha Bodhisattva
+   - Ksitigarbha Bodhisattva
+- Inner
+   - Arya Tara
+   - 6+1 Taras
+   - 108 Taras
 
 > With this, we will gain the ability to focus the mind within, and to avoid all obstacles.
 
