@@ -63,3 +63,7 @@ Yoga Sutra texts collected by Micheal Yeshe.
 - [58 - The Human Linga](#)
 - [59 - The Third Cornerstone](#)
 - [60 - The Clear Light](#)
+- [61 - The Eye of Wisdom](#)
+- [62 - The End of Thoughts](#)
+- [63 - How Things Bein and End](#)
+- [64 - How Things Neither Begin Nor End](#)
