@@ -79,3 +79,8 @@ Yoga Sutra texts collected by Micheal Yeshe.
 - [74 - Know Thyself](#)
 - [75 - When Two is One](#)
 - [76 - The Rainbow Body](#)
+- [77 - The Three Skies](#)
+- [78 - The Body of Light](#)
+- [79 - The Last One Left](#)
+- [80 - The Body of All Knowing](#)
+- [81 - Respecting Our Destiny](#)
