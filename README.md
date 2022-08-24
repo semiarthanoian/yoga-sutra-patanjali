@@ -78,3 +78,4 @@ Yoga Sutra texts collected by Micheal Yeshe.
 - [73 - Everything from Understanding](#)
 - [74 - Know Thyself](#)
 - [75 - When Two is One](#)
+- [76 - The Rainbow Body](#)
