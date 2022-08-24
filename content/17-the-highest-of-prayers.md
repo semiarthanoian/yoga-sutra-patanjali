@@ -2,23 +2,23 @@
 
 > Calling upon their names is the first of all prayers. We must repeat this prayers and think well upon the meaning.
 
-- Northern
+- Northern Trinity
    - Sakyamuni Tathagata
    - Manjushri Bodhisattva
    - Samanthabhadra Bodhisattva
-- Western
+- Western Trinity
    - Amitabha Tathagata
    - Avalokitesvara Bodhisattva
    - Mahasthamaprapta Bodhisattva
-- Eastern
+- Eastern Trinity
    - Bhaisajyaguru Tathagata
    - Suryaprabha Bodhisattva
    - Candraprabha Bodhisattva
-- Southern
+- Southern Trinity
    - Satnasambhava Tathagata
    - Akasagarbha Bodhisattva
    - Ksitigarbha Bodhisattva
-- Inner
+- Inner Guidance
    - Arya Tara
    - 6+1 Taras
    - 108 Taras
