@@ -1,4 +1,4 @@
-# The Lie of Choice
+# The Lie of Choices
 
 > And there will come a time when difference no longer harass you.
 
