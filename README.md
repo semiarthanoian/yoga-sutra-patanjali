@@ -2,7 +2,7 @@
 
 Yoga Sutra texts collected by Micheal Yeshe.
 
-- [00 - Introduction](#)
+- [00 - Introduction](/semiarthanoian/yoga-sutra-patanjali/blob/main/content/00-introduction.md)
 - [01 - The First Cornerstone](#)
 - [02 - The Power Of Compassion](#)
 - [03 - To Become Whole](#)
@@ -84,3 +84,12 @@ Yoga Sutra texts collected by Micheal Yeshe.
 - [79 - The Last One Left](#)
 - [80 - The Body of All Knowing](#)
 - [81 - Respecting Our Destiny](#)
+- [82 - The Fourth Cornerstone](#)
+- [83 - The Destruction of Karma](#)
+- [84 - Gaining Control of Our Lives](#)
+- [85 - The End of Limitation](#)
+- [86 - Dropping The Border of Time](#)
+- [87 - Beyond But Not Beyond The Mind](#)
+- [88 - How We Hear Ourselves Think](#)
+- [89 - The Apparent Self-Awareness](#)
+- [90 - Learning from Seeing](#)
