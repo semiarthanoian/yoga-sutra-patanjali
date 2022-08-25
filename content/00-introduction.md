@@ -11,3 +11,5 @@ Master Patanjali was a great yogi. He knew the physical Poses of Yoga and the Ar
 > Dancers, doctors, yogis, thinkers, masters of ancient worlds.. What do they have in common?
 
 Yoga, as we'll see, has many meaning. One is the union of the winds within our inner body. We unite these winds with our Yoga, when we think, pray, and perceive the Ultimate Truth. The inner winds will sing and flow free within us. They'll make our vibrations lighter and flows to heal others.
+
+[\[Next\] The First Cornerstone](/00-introduction.md)
