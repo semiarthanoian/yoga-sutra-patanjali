@@ -9,3 +9,5 @@ Karmic seeds are planted in the mind - simply by being aware that we are doing, 
 Certain seeds, like priority flights, get to move ahead of the others in line. For example, if we have said something out of terrible anger, or done a kind deed with and intense understanding of how seeds themselves work.
 
 In actual, anything good we ever do always comes back good. When it seems differently, that's just another karmic seed take of in the between because of its priority.
+
+[\[Next\] Everything We See](/content/40-everything-we-see.md)

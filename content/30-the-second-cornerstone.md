@@ -15,3 +15,5 @@ This is not some stuperfied numbness, but refers rather to permanently stopping 
 After reaching this nirvana, we work further to become a transcended being - who sees all things, know all things, and is capable to help all people at once.
 
 In fact, the Sanskrit word for "the way" here is "sadhana", which means "to reach". We reach our perfect destiny firstly by prayers to Transcended Beings and secondly by becoming one of them.
+
+[\[Next\] The True Enemy](/content/31-the-true-enemy.md)

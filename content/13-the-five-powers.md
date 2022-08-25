@@ -27,3 +27,5 @@ This is not blind faith, but rather a deep attraction for the abundance of our s
 ## Effort
 
 Once we know how a spiritual experience is, effort then comes naturally. We'll naturally go through serious practices more and more.
+
+[\[Next\] The Four Stages](/content/14-the-four-stages.md)

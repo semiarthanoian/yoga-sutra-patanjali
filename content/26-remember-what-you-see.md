@@ -15,3 +15,5 @@ Empty doesn't mean that nothing exist. It only means that what we thought was th
 > This is the clear light beyond all conceptual thoughts.
 
 The mind in our normal state of the Great Mistake - mistakes words. All are the perfect little mental pictures which the karmic seeds make for actual objects. This in itself is thinking conceptually "here".
+
+[\[Next\] Approaching The Goal](/content/27-approaching-the-goal.md)

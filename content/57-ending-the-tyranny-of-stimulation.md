@@ -9,3 +9,5 @@ Be sure to breath calmly and reaches back. This allow us to be nice to others. A
 Our physical senses are powerful tools. And it's fine to enjoy things. To make serious progress in our pathway to save and serve the world - though we have to learn to manage the senses sensibly.
 
 Do the yoga excercise modestly but steadily. Cultivate silence and enjoy it. Eventually, these will lead to the highest form of silence - direct communion with the Ultimate Reality.
+
+[\[Next\] The Human Linga](/content/58-the-human-linga.md)

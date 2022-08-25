@@ -11,3 +11,5 @@ In a way, we already possess the first body of the transcended, and we always ha
 Since we are not the self anyway, we are available to transcend into a light being. And we always have been. The body of light is our true and very first body.
 
 When we grasp that - the way we look, our physical appearance - is also available in the same way, we begin the hard work of planting enough karmic seeds to change the actual physical elements of our body into those of a Transcended Being.
+
+[\[Next\] The Last One Left](/content/79-the-last-one-left.md)

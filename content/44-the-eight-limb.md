@@ -11,3 +11,5 @@ Our wisdom here is beyond needing to stay mindful even of the illusion. This the
 > The Eight Limbs are: Self-aware, Commitments, Yoga-poses, Breath-control, Senses-guard, Focus, Fixation, and Perfect-meditation.
 
 The brilliance of Master Patanjali's book on Yoga - the reason it has survived thousands of years - is that it now gives us a very practical, step-by-step guide - which all of us, regardless of our abilities or circumstances we live in, can undertake right now to gain these goals.
+
+[\[Next\] Dissolving Negative Karmic Seeds](/content/45-dissolving-negative-karmic-seeds.md)

@@ -11,3 +11,5 @@ All such transformations are possible because all things are as they are at the 
 - Success and Failure is not the opposite but the source of each other.
 
 And this is the fact that nothing ever begins or ends. Nor does it pass through any other stage like staying.
+
+[\[Next\] The Power to Save](/content/65-the-power-to-save.md)

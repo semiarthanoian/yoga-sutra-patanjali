@@ -11,3 +11,5 @@ And Transcended Beings really do exist. The idea may seem a little corny, but al
 If the seed thing really works, and if we push it to its limit, then it's stand to reason that we'll eventually be surrounded by such beings all the time.
 
 Mental purity and physical simplicity lead to a serene state of mind, no longer enslaved by excesses of food or sexuality. When the water of a lake is perfectly still, only then we can see the full moon reflected in it - the Ultimate Reality.
+
+[\[Next\] How to Be Happy ?](/content/50-how-to-be-happy.md)

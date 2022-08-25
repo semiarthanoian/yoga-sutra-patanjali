@@ -7,3 +7,5 @@ The things around us are a product of the karmic seeds within our mind, and so a
 It's a kind of magic that happens when we've found back our own Masters and commit ourselves to the joy of working closely with a spiritual guidance, serve the Masters and their sacred work.
 
 The bond between us and our spiritual guidance is the most meaningful relationship we ever enjoy. Ultimately, it will help countless other beings.
+
+[\[Next\] The Highest of Prayers](/content/17-the-highest-of-prayers.md)

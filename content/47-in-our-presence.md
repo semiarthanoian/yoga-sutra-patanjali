@@ -12,3 +12,5 @@ The more thoughtful and steadily we work with our own karmic seeds, instead of t
 - Then, the obvious - almost everybody at work starts to smile at us.
 - Next, the amazing - wars around the world suddenly stop because we have moved to another sphere of existence which is represented by different bundle of karmic seeds.
 - Finally, the miraculous - the process of our body aging clearly stops and begins to reverse itself.
+
+[\[Next\] Relationship and Possessiveness](/content/48-relationship-and-possessiveness.md)

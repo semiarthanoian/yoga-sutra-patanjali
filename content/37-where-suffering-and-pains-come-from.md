@@ -17,3 +17,5 @@ There is a higher and infinitely compassionate intelligence which has created ev
 It's about the causes and effects. We get exactly what we give to others.
 
 > All this, by the way, is not to say that there are no Transcended Beings hovering around us constantly, guiding us towards perfect happiness. There are, but still it cannot come unless we take care of others.
+
+[\[Next\] Why Things Fall Apart ?](/content/38-why-things-fall-apart.md)

@@ -13,3 +13,5 @@ Our experiences about the body getting old because negative karmic seeds are spr
 When karmic seeds are about to sprout, we call it "becoming". This is triggered by staying in our same old nature - seeing the wrong way things really are.
 
 The karmic seeds are what gave us a mortal body in the first place, and we can change that - if we change the seeds.
+
+[\[Next\] The Five Powers](/content/13-the-five-powers.md)

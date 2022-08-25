@@ -17,3 +17,5 @@ On this level, things are not different. This is not some vague sentiment that e
 > Earlier on, we caught our mind imposing  a perfect little picture of a pot onto the mere signs of a pot out there on the stove - silver color, round shape.
 
 When we understand thus how the Deceptive Reality works, it leads us to see the Ultimate Reality. But we can't stay there without the right karmic seeds.
+
+[\[Next\] The Loneliness of Seeing](/content/42-the-loneliness-of-seeing.md)

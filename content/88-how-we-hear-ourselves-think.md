@@ -11,3 +11,5 @@ Objects depend on subjects, and subjects rest upon objects. Neither can exist wi
 Everyone, regardless of their spiritual level, is watching their mind working all the time. It's not true that we cannot watch our own mind by true self.
 
 Our physical senses defect outer stimuli. Our mental sense defects inner worlds and images. In the next mili-second, these as a group are presented to the mirror of our mind - and we see the world and ourselves.
+
+[\[Next\] The Apparent Self-Awareness](/content/89-the-apparent-self-awareness.md)

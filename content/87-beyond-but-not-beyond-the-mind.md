@@ -11,3 +11,5 @@ For approaching the foundation truth of emptiness, there are two instruments we'
 - Another is self-defective - sort of listening and watching the mind from a little independent corner of it.
 
 And the direct experience of Ultimate Reality during meditation is triggered by the purest karmic seeds.
+
+[\[Next\] How We Hear Ourselves Think](/content/88-how-we-hear-ourselves-think.md)

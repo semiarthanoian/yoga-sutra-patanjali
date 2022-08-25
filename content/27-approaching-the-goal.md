@@ -7,3 +7,5 @@ The day after we see the Ultimate Reality, we are on the fourth path - the Path 
 > That object which is subtle to the Ultimate is the one where there are no signs. And this is still what is called deep meditation where we can still be touched the karmic seeds.
 
 The content of our meditation, the object upon which we use this powerful tool to focus, must be that one most meaningful and subtle object of all.
+
+[\[Next\] Beyond All Fear](/content/28-beyond-all-fear.md)

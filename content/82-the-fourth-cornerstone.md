@@ -7,3 +7,5 @@ One can gain special powers and visions using herb - or through extreme practice
 The problem with all those methods is that they simply cannot be sustained at will. We must understand that the qualities which all things possess actually come from our karmic seeds.
 
 Then we must quietly, happily, and steadily, tend the garden of our own minds to produce paradise.
+
+[\[Next\] The Destruction of Karma](/content/83-the-destruction-of-karma.md)

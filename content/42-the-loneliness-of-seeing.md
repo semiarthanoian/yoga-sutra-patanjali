@@ -11,3 +11,5 @@ And this is because the simple act of seeing, if only for a number of minutes, d
 In hours after we first see, we pass through a series of extra-ordinary visions. One of these is seeing directly into the future, to the day when we become a Transcended Being who can help all other living creatures. And so, all doubts about our future, for example, vanish forever.
 
 These two are very personal experiences which can never be conveyed to those who have not seen. However much the seer may want to share them, however much they may say or write, they cannot remove every last doubt of those who have yet to shatter the Great Mistake.
+
+[\[Next\] To See The Illusion](/content/43-to-see-the-illusion.md)

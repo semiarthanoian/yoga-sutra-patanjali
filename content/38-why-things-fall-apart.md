@@ -15,3 +15,5 @@ Everything comes from the karmic seeds.
 > And stopping how the mind turns things around to have qualities of their own, allows us to discern how every part of our lives suffering.
 
 Everything comes from the karmic seeds, and seeds die by sprouting. Truly then, every part of our lives - even the good things - must one day cause us suffering and pains. This is the second truth - the Truth of Suffering and Pains.
+
+[\[Next\] Why We Suffer ?](/content/39-why-we-suffer.md)

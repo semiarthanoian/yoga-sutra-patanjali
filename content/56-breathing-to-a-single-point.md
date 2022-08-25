@@ -17,3 +17,5 @@ All the practices of yoga are aim at stilling the side channels, which cause us 
 The result of Body Yoga and esspecially - the breath excercises - come only with a steady work and guided by Transcended Beings. So, don't try to force things ourselves.
 
 Success comes very surely and naturally with the body of Self-aware and Commitment.
+
+[\[Next\] Ending the Tyranny of Stimulation](/content/57-ending-the-tyranny-of-stimulation.md)

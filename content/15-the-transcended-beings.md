@@ -9,3 +9,5 @@ There are things we absolutely cannot learn from the static pages of a book, or 
 Pray for the Transcended Beings' blessing - the understanding of where things are really coming from. Since this understanding is the only thing that can surpressed negative karmic seeds - forever.
 
 No anger, no hurting others, no new negative karmic seeds in the store, and the understanding itself means that negative seeds stored up earlier in the mind will now simply never sprout.
+
+[\[Next\] Serve The Masters](/content/16-serve-the-masters.md)

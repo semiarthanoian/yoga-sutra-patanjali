@@ -11,3 +11,5 @@ This wrong idea of "me" is awakened by our very first sensations in life. Inflic
 When we experience something, we tend to think of it as something out there, on its own, and by itself. But, in fact, the experience and the "me" are being produced by those seeds within our mind.
 
 We can see this from the fact that the same object will give different experiences to different people, or exactly to different bundle of karmic seeds.
+
+[\[Next\] Is It Wrong to Like Things ?](/content/34-is-it-wrong-to-like-things.md)

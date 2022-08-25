@@ -16,3 +16,5 @@ Our spiritual skills will develop to a higher degree at each stage:
 - and finally the Five Highest Objects.
 
 A person at the end of the fourth stage, might be watching a pot of water on the stove. They suddenly realize that they are watching an impossibly perfect, tiny picture of a pot within their own mind.
+
+[\[Next\] The Transcended Beings](/content/15-the-transcended-beings.md)

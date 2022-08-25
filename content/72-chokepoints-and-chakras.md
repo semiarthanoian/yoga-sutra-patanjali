@@ -13,3 +13,5 @@ This means that any physical ailment we ever have can be traced to the channels,
 > Turning this understanding upon the chakra at the neck allows us, in time, to overcome the need to eat and drink.
 
 And we can gradually control all five physical senses which are tied to five secondary inner winds called "turtle" winds - respnsible for our turtle-shaped liver.
+
+[\[Next\] Everything from Understanding](/content/73-everything-from-understanding.md)

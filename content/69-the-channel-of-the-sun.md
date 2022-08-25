@@ -9,3 +9,5 @@ Tied to the wind of this channel are these thoughts - anger, hatred, jealous, ..
 The beauty of yoga is that we work on this channel simply and effectively through selected physical yoga excercises. Breath control practiced with authentic guidance further achieves this goal.
 
 And we can also use the eye of wisdom to still this channel from the inside.
+
+[\[Next\] The Channel of The Moon](/content/70-the-channel-of-the-moon.md)

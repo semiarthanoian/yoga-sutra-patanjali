@@ -11,3 +11,5 @@ Our system is like and extra-ordinary recorders that records every act, word, an
 This storehouse of karmic seeds decides what we see now, and also what we see where we can't see yet - after we die. Don't be naive and believe that thougths will simply stop because the body stops. If we don't get a call from someone, maybe their phone is just broken.
 
 We all have lots of negative karmic seeds. Only true knowledge can stop them from every sprouting.
+
+[\[Next\] Where Suffering and Pains Come from ?](/content/37-where-suffering-and-pains-come-from.md)

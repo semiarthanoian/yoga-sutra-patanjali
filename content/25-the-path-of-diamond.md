@@ -9,3 +9,5 @@ This path cannot occur unless first we are staying in the state of meditation wi
 > And the object is like a crystal, with the one that holds it, and what it holds, and the holding itself as well.
 
 The Ultimate Reality lies all around us now, but beyond our perception, clear as diamond. In fact, everything there is, everywhere, posses its own Ultimate Reality - just as every spliter of diamond which is simple and perfectly pure.
+
+[\[Next\] Remember What You See](/content/26-remember-what-you-see.md)

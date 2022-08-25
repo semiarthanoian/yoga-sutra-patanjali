@@ -7,3 +7,5 @@ One day, after much practice and study, and after plating enough necessary karmi
 During the meditation, the Great Mistake has stopped for a while. We can only "stay" as long as our karmic seeds allow us. There is no conscious effort to awaken.
 
 Stopping the Great Mistake completely, even for only a brief while, eliminates certain negative thoughts forever. Again, the eternal absence also relies on karmic seeds.
+
+[\[Next\] How Things Begin and End ?](/content/63-how-things-begin-and-end.md)

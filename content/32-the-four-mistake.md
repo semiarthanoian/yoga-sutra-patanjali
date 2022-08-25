@@ -11,3 +11,5 @@ Instead of figuring out where things really come from, instead of trying to find
 All of those seem to us as if they will last, as if they are clean, as if they are pleasant, and as if they are there by themselves. At the bottom of all is the root of ignorance.
 
 The fact is that every single thing we've ever seen is not what we think it is. Things are not there by themselves, they are exported by ourselves.
+
+[\[Next\] Beginning of Self](/content/33-beginning-of-self.md)

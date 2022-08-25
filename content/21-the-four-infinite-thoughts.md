@@ -28,3 +28,5 @@ It's the decision to bring all living beings to higher form of happiness which i
 ## Infinite Equanimity
 
 It's the decision to help every living beings this way - not just our friends and family. This begins with avoiding extremes of emotions - happy when we feel well or stress when we don't.
+
+[\[Next\] Bright and Clear](/content/22-bright-and-clear.md)

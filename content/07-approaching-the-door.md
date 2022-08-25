@@ -14,3 +14,5 @@ We begin with a daily inner practice. It includes three essential elements:
 - Being careful never to hurt others;
 - Learning to meditate and pray;
 - And relentlessly exploring the question of where things really come from.
+
+[\[Next\] Approaching The Door](/content/07-approaching-the-door.md)

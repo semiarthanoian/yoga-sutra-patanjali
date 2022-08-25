@@ -15,3 +15,5 @@ Again, all the powers ultimately support and also spring from a clear understand
 Within the chakra at the heart, lies an indestructible drop of consciousness - infinitely smaller than the tip of a needle. Herein lies the storehouse of billions of karmic seeds, projecting forth our life.
 
 When the heart chakra is open, ultimate compassion burst forth as crystal light.
+
+[\[Next\] Know Thyself](/content/74-know-thyself.md)

@@ -13,3 +13,5 @@ The antidote is called the Four Forces:
 - The fourth force is to take a positive action to counteract the negative one, mentally, physically.
 
 Consciously dedicate all four forces to the karmic seed and it will dissolve.
+
+[\[Next\] In Our Presence](/content/47-in-our-presence.md)

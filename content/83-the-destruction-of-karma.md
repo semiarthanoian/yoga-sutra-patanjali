@@ -15,3 +15,5 @@ Grasp this about our mind itself. Grasp this about the idea of sending out count
 Meditating upon how things really work, will dissolve the store house of negative seeds. By the act of understanding, we change the very quality of things.
 
 And then we must become as gardeners, gardening both planting flowers and stopping weeds.
+
+[\[Next\] Gaining Control of Our Lives](/content/84-gaining-control-of-our-lives.md)

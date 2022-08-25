@@ -14,3 +14,5 @@ As our powers grow, and we evolve, all of our physical and emotional pain will b
 But then, these important people will show themselves to us, and invite us to their family - which acts only for true happiness of the entire family of all living kinds.
 
 We've said that we had to understand the understanding itself. That urge itself is coming from the karmic seeds too. And the only seeds it can come from are planted by wanting to save all the rest of us.
+
+[\[Next\] The Fourth Cornerstone](/content/82-the-fourth-cornerstone.md)

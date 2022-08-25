@@ -7,3 +7,5 @@ When we are aware of our inner world, we can hear thoughts and see images. What'
 And this is what the whole book has been about. We can't control the present moment. It's happening by old karmic seeds. So we'd better learn to stay in pure acceptance of the here and now, without resistance.
 
 But we have every power and right towards this very moment. And we must use this power and right to select which new karmic seeds to plant in the garden of our mind.
+
+[\[Next\] Learning from Seeing](/content/90-learning-from-seeing.md)

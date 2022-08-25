@@ -9,3 +9,5 @@ The first chapter describes five crucial steps that we all pass through during o
 Inbetween its beginning and its end, the roud we travel has five paths. Each one leads to the next. Each one marked by its own special milestone. Stepping up to each new path from the one before, it can only be done in one way. We must be in deep meditation. We must learn to meditate.
 
 Thus, it is that the first chapter on the five paths is called The Chapter On Meditation.
+
+[\[Next\] The Power of Compassion](/content/02-the-power-of-compassion.md)

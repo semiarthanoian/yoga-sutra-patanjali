@@ -11,3 +11,5 @@ The three channels are joined together below the area of our navel - the Hara ch
 Simply reading and understanding the words on this page - withdraws inner winds out of the troublesome side channels and directs them into the center channel - this in turn further reveals to us the workings of the two realities.
 
 When all the inner winds dissolves into the center channel, the body changes to light, and we stand upon all worlds. And this is the true purpose of all types of yoga.
+
+[\[Next\] Chokepoints and Chakras](/content/72-chokepoints-and-chakras.md)

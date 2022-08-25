@@ -11,3 +11,5 @@ At the bottom of everything lies the fertile field of ignorance - what we've bee
 Only by realizing this ignorance, we can stop all our unhappiness, anger, and the rest.
 
 There are four important principles which - when we grasp them totally - help detaching from all our pain. These are called the Four Higher Truths.
+
+[\[Next\] The Four Mistake](/content/32-the-four-mistake.md)

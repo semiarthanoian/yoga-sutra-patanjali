@@ -9,3 +9,5 @@ So, Self-aware restrains new negative karmic seeds and Commitment plants new goo
 We may not be able to see what we originally did to plant the karmic seeds we have now. But we can decide what we must have done, from how these seeds are sprouting and creating painful pitures in our current health and relationships.
 
 All karmic seeds for suffering - whether outright pains or happiness which decays into pains - are planted through the Great Mistake as we respond to the events and people around us with mistaken feelings of liking and disliking things that actually come from ourselves.
+
+[\[Next\] The Four Forces](/content/46-the-four-forces.md)

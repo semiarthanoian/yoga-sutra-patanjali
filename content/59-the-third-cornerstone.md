@@ -9,3 +9,5 @@ On one level, the mind focus on a single object through the process of eliminati
 It's like finding a friend in a crowd at the train station. We check and eliminate faces in the crowd, and steadily narrow focus down on the friend's face. The more faces there are to take out, the more difficult it is to find out the friend.
 
 Once we reach a single point, we need to stay there, threading that path between thinking of other things and dozing off mentally. Thinking of death fixes the first and thinking of our perfect destiny fixes the second.
+
+[\[Next\] The Clear Light](/content/60-the-clear-light.md)

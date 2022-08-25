@@ -17,3 +17,5 @@ And so the 7 main chakras are:
 - Root chakra - which is located at the bottom of the spine.
 
 The three main channels we've talked about runs through these main chakras too. The focus breathing technique can help us to realign energy flows at these chakras and free all deceptive thoughts from within the two side channels. Besure to breath calmly, reaching the back, focus on the points where it's needed to free the inner winds, and gradually performs compassionate thoughts.
+
+[\[Next\] The Third Cornerstone](/content/59-the-third-cornerstone.md)

@@ -11,3 +11,5 @@ Once all negative karmic seeds are gone, we progress through the final steps tow
 When we reach total purity though, we blissfully see everything in both realities, even with our ears, fingers, or other senses.
 
 This is the final goal - the fifth path - the Path of No More Learning. We can be beyond all fear. We have reached our goal through a careful process of learning from Transcended Beings and considering well what they say. Now we experience it directly.
+
+[\[Next\] The End of Karmic Seeds](/content/29-the-end-of-karmic-seeds.md)

@@ -11,3 +11,5 @@ In addition to physical excercises which reaches down to open the channels, ther
 Although our breath is not the inner wind, the two are intimately connected. Whatever happens with one resonates with the other. And so in one direction, working on the outside in, we can remain in a meditation posture of yoga or pose and master our breath - which then calm the inner wind.
 
 From the inside out, we can quiet the thoughts - which also calm the inner wind. A totally calm and properly focused mind brings all negative thoughts to a standstill, at which point the outer breath simply stops.
+
+[\[Next\] How to Breath ?](/content/55-how-to-breath.md)

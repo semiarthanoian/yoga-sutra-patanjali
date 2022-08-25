@@ -9,3 +9,5 @@ Incidentally, the Masters maintain their general outer forms as human beings eve
 And so, sometimes the body of light is called "rainbow body"; Because from a distance a rainbow look like solid stuff, but up close we can pass our hand through it.
 
 The Masters who really understands and untouched by karmic seeds could take on various outer forms and appear to be born as various different people. They know it's easier for us, on a day-to-day level, to relate to someone fairly much like ourselves. And so, at the very beginning, they come to us that way.
+
+[\[Next\] The Three Skies](/content/77-the-three-skies.md)

@@ -12,3 +12,5 @@ In order to be of service to others, the extra-ordinary powers come to us by pla
 When we transcend to reach our perfect destiny, we will have ultimate powers to help everyone: ultimate compassion, knowledge of all things, and the ability to show up any where in the universe at any time.
 
 Ultimate Compassion is the true evolution of all the powers.
+
+[\[Next\] The Channel of The Sun](/content/69-the-channel-of-the-sun.md)

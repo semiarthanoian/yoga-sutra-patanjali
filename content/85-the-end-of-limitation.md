@@ -11,3 +11,5 @@ And so it doesn't matter how much we want to be there. We're not going to be the
 When mis-understanding stops, the old storehouse collapses - replaced by self-perpetuating pure karmic seeds.
 
 A seer who has gotten very good at mental gardening though - utilizes a powerful inner catalyst of knowledge and a strong emotional urge to help others. They can frame the distant events mentally, and there by, they can reach backward and forward into inifite time with nothing left unknown.
+
+[\[Next\] Dropping The Border of Time](/content/86-dropping-the-border-of-time.md)

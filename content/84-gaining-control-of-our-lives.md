@@ -10,3 +10,5 @@ Most of us are constantly and blindly planting three kinds of karmic seeds in ou
 - and occasional nice white ones from helping someone else.
 
 True practitioners do the same good deeds with understanding. Instead of planting impure white or black karmic seeds, they plant only pure ones. And thus, they run their lives by themselves.
+
+[\[Next\] The End of Limitation](/content/85-the-end-of-limitation.md)

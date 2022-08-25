@@ -9,3 +9,5 @@ Take a laptop for an example, to some people, it's a tool to learn coding, desig
 The application of the object now does not really come from itself, but rather come from our karmic seeds. And which ideas our mind come up with any object at the first look depends on the karmic seeds - on how we've treated others.
 
 Even the questions of whether we can think these ideas is coming from the karmic seeds. It's about ideas in this book.
+
+[\[Next\] When Two is One](/content/75-when-two-is-one.md)

@@ -9,3 +9,5 @@ At any rate, real Masters will demand from us - often painfully so that we put o
 As we gradually replace our mental stockpile with an increasingly higher percentage of pure karmic seeds - then our Masters begin to come to us in ever higher ways. At a very specific point, they come to us as perfect Transcended Beings who will guide us personally to our paradise together.
 
 This is not some wishfully fairy-tale thinking. It is the hard, practical, inevitable result of devoting ourselves to the task of cleaning up the karmic seeds within our own mind.
+
+[\[Next\] Body Yoga](/content/52-body-yoga.md)

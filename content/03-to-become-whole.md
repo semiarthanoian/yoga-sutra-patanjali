@@ -11,3 +11,5 @@ A mother takes her small child to a movie. The child doesn't like an action of a
 Our mind makes this same kind of mistake, every moment, every day. We need to stop the mistake, and that is Yoga.
 
 Pain is real, suffering is real - yes. But we can only stop it if we stop misunderstanding where it comes from. And that's what Yoga Sutra teaches us to do.
+
+[\[Next\] The Seer](/content/04-the-seer.md)

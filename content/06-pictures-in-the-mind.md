@@ -13,3 +13,5 @@ When we have a memory of something, again there is no outer object; There's just
 Unless we truly understand things - the Yoga's way - then every single perception and imagination we ever have is infected by the Great Mistake.
 
 Feelings, strong feelings, come up about the things we think we see - and the child beats his fist against the man on the movie screen.
+
+[\[Next\] Approaching The Door](/content/07-approaching-the-door.md)

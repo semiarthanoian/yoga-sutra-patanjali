@@ -11,3 +11,5 @@ The word "strength" here implies both very good health in general and energy for
 > If we perserver in overcoming possessiveness, we will be able to see our other lifetimes.
 
 If we learn not to clutter up our lives with things and business, the mind becomes so still and clear that we can see future events and even other lifetimes. A wonderful skills for success at every level of life.
+
+[\[Next\] Simply Clean](/content/49-simply-clean.md)

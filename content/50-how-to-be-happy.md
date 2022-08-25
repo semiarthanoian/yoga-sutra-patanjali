@@ -9,3 +9,5 @@ These seeds ripen as pure contentment and it's worth a huge amount of wealth see
 > Embracing spiritual hardships - dissolve impurities, allowing us to master both body and senses.
 
 The decision to commit ourselves to something that is truly meaningful - forces a lot of old dangerous karmic seeds to go off permanently. It's sort of like inconvenience of missing a "chance" but the chance was actually a mis-fortune.
+
+[\[Next\] Find Our Guardian](/content/51-find-our-guardian.md)

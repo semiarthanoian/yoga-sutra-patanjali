@@ -11,3 +11,5 @@ If one moment in time is only a perception, then all moments are, and we could l
 We would then gain power over words themselves, since the mental pictures are what words are. We can speak to all people, guide all people, in their own languages.
 
 Transforming past and future karmic seeds into present ones, we can describe to people events of their past lives. So they can understand how everything comes from the seeds we've planted.
+
+[\[Next\] Reading the Mind of Others](/content/66-reading-the-mind-of-others.md)

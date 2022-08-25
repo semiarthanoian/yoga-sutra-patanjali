@@ -9,3 +9,5 @@ It only lasts for a brieftime, the first time. And then, despite ourselves, we g
 > We see that we are not at all the way we always thought we were.
 
 These precious minutes, our first contact with the Ultimate Reality, are thus called the Path of Seeing. Not because we see these things with our eyes, but because we see them with our mind, in very deep meditation.
+
+[\[Next\] A Day in The Mind](/content/05-a-day-in-the-mind.md)

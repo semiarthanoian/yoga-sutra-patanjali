@@ -37,3 +37,5 @@ Even just chanting their names quietly througout the day is enough. This can kee
 Because of the extraordinary power that comes when a master and a spiritual discipline honor and serve each other purely, all obstacles in our path will melth away.
 
 We can add the word "Om" before their names. This sacred sound is made of three parts: "a-a", "o-o", "m-m". It represent totally pure actions, words, or thoughts - we will use to help others to reach the end of the five paths.
+
+[\[Next\] Beginning Obstacles](/content/18-beginning-obstacles.md)

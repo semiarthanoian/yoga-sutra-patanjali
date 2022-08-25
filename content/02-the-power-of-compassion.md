@@ -14,3 +14,5 @@ And we will only review, said the master, what his holy teachers had told. He le
 And he said: "I will write this book, for once a master promises to do something, they do it - or die trying it."
 
 All the great book of India begins with these three noble themes: their power, their karma, and stops all obstacles to the work now we begin.
+
+[\[Next\] To Become Whole](/content/03-to-become-whole.md)

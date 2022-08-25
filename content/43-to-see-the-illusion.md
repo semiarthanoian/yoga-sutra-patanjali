@@ -11,3 +11,5 @@ But the seer now know that the reality can't be that way. And so, in a way, they
 Seers, because they have seen, possess all the tools they need to dissolve all the Great Mistakes. Like a vehical, this knowledge carries them through six advanced levels, where they perfect the virtue of giving, ethical living, patience, spiritual effort, deep meditation, and higher wisdom.
 
 During the seventh level, they manage to stop things from even looking like they come from their own side.
+
+[\[Next\] The Eight Limb](/content/44-the-eight-limb.md)

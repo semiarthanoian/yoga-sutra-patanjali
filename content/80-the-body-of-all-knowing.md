@@ -12,3 +12,5 @@ The fourth layer is then the body of what our mind will become. Our sense powers
 It takes a split-second for the mind to identify the objects presented to it - including organizing thought-sounds into thought-words. So in one way, we're always a split-second behind what's going on around us. But the principle character - the mind is so quick that we never notice.
 
 Understanding the true nature of every part of this process is that - it's still coming from the mind. This allows us to reach the fourth body - the body of all knowing.
+
+[\[Next\] Respecting Our Destiny](/content/81-respecting-our-destiny.md)

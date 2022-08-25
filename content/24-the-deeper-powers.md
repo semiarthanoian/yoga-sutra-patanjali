@@ -17,3 +17,5 @@ If meditation can bring us a kind of bliss, then simply standing, sitting, lying
 As the seeds in our mind transform, we suddenly become very good at anything we try to do - whether small exacting tasks or monumental projects.
 
 As this process continues, we even gain the power to actually enter and alter processes of sub-atomic to galactic levels - if that would help somebody.
+
+[\[Next\] The Path of Diamond](/content/25-the-path-of-diamond.md)

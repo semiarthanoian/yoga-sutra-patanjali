@@ -13,3 +13,5 @@ Our experiences of the body are ever changing, a combination of physical element
 It's important to grasp that our perceptions of all things, whether themselves are constant of in flux, are coming from the karmic seeds in our minds. Then we can relate to the universe wisely.
 
 We can either compulsively take in what our past provide us, or embrace the bold endeavor of planting new karmic seeds for a perfect world of freedom.
+
+[\[Next\] The Two Reality](/content/41-the-two-reality.md)

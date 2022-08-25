@@ -13,3 +13,5 @@ And not with that kind of helps that will themselves quickly be used up and disa
 The physical yoga excercises and the special breathing techniques that go with them, are meant to open up the subtle inner channels.
 
 But because the thoughts themselves travel in these channels, we can get the same result - a lot more quickly and easily - by simply thinking the Infinite Four Thoughts.
+
+[\[Next\] Freedom from Ego](/content/23-freedom-from-ego.md)

@@ -11,3 +11,5 @@ For almost all people, the inner channels at the heart chakra are tangled and bl
 When it does, then for a brief of time, we can actually see the face of every living being, not just in our world but in countless universes. And in this moment, we see as well that we will spend every hour of the rest of our life living beyond this one, and learning to take care of each one of these beings.
 
 We are freed forever from selfishness and from wanting anything other than the Ultimate Compassion.
+
+[\[Next\] The Deeper Powers](/content/24-the-deeper-powers.md)
